@@ -1,1 +1,0 @@
-# Drawing_bed1
